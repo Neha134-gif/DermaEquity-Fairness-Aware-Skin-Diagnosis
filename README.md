@@ -1,0 +1,1 @@
+# DermaEquity Project
